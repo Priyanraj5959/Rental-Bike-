@@ -1,0 +1,1 @@
+ India’s leading micro-mobility service provider, offering unique vehicles for the daily commute.It aims to eliminate traffic congestion and provides a sustainable commuting solution. Recently, It has experienced dips in revenue and has contracted a consulting company to understand the factors affecting the demand for shared electric cycles in the Indian market.
